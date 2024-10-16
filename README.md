@@ -6,3 +6,4 @@ BEM VINDO AO MEU ṔERFIL🙃
 - VICE CAMPEãO DA COPA RM
 - PRETENDO VIRAR PROFISSIONAL💪
 - ![.]_(https://bid.cbf.com.br/).
+- camisa 11
